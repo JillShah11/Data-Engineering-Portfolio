@@ -24,6 +24,6 @@
 ---
 
 # 🔗 Let's connect!
-## 📫 [LinkedIn](#)  🧠 [Blog](#)  🌐 [Portfolio Website](#)
+## 📫 [LinkedIn](#) https://www.linkedin.com/in/jillshahn/  🧠 [[Blog](#)] (https://medium.com/@jillshah_59047) Email : jillshah1109@gmail.com
 
 
